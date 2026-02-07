@@ -5,3 +5,6 @@
 **WIP**
 
 [strawpage](https://anangelicdemon.straw.page)
+
+![GIF](https://i.postimg.cc/wT3wdFY1/sinlbm.gif)
+
