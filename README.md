@@ -5,7 +5,7 @@
 ![main](https://i.postimg.cc/htRkpNN8/Untitled-design-(5).png)
 
 
-**WIP**
+**:P**
 
 [strawpage](https://anangelicdemon.straw.page)
 
