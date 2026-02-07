@@ -18,3 +18,5 @@
 ![div](https://i.postimg.cc/bNGP6KLp/pct622.png)
 
 ![](https://komarev.com/ghpvc/?username=Tamsysanklebiter&label=/⁠ᐠ⁠｡⁠ꞈ⁠｡⁠ᐟ|)
+
+**Creds to my moot who helped me ꉂ(˵˃ ᗜ ˂˵)**
