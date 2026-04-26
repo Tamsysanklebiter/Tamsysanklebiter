@@ -5,7 +5,7 @@
 ![main](https://i.postimg.cc/htRkpNN8/Untitled-design-(5).png)
 
 
-**:P**
+**"If you go beyond here, everythig that is precious to you will be taken away."**
 
 [strawpage](https://anangelicdemon.straw.page)
 
