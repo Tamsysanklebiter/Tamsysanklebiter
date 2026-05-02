@@ -20,3 +20,7 @@
 ![](https://komarev.com/ghpvc/?username=Tamsysanklebiter&label=/⁠ᐠ⁠｡⁠ꞈ⁠｡⁠ᐟ|)
 
 **Creds to my moot who helped me ꉂ(˵˃ ᗜ ˂˵)**
+
+**Sign my younger brother's strawpage (´｡• ᵕ •｡)**
+
+[strawpage](https://number1graymain.straw.page/)
